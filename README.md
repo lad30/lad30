@@ -17,7 +17,6 @@ Here are some ideas to get you started:
 ## 🌐 Socials:
 [[LinkedIn](https://www.linkedin.com/in/hrithvik-lad/)]
 
-[[Resume](https://drive.google.com/file/d/1H0irqgBJXyYdvnk3x8PkiW2hPVbsr2qZ/view?usp=drive_link)]
 
 
 
